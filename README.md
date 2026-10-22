@@ -6,7 +6,7 @@
  
 💞️ I’m looking to collaborate on an interesting project about Geolocation and joining in a company what I have on my eyes on which I've advance on this process.
  
-📫 You could be asking.. How to reach me? .. Well, I've 2 answers: Just mail me at contact@angelgarciaco.com or trough messages on Linkedin https://www.linkedin.com/in/angelgarciaco
+📫 You could be asking.. How to reach me? .. Well, I've 2 answers: Just mail me at contacto@angelgarciaco.site or trough messages on Linkedin https://www.linkedin.com/in/angelgarciaco
 
 No worries.. I want to hear you.
 
